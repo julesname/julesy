@@ -1,2 +1,2 @@
 # julesy
-data science whiz
+data science whiz 🧪
